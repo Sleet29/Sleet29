@@ -2,7 +2,7 @@
 - 👀 I’m interested in IT-TECH
 - 🌱 I’m currently learning JAVA Programming
 - 💞️ I’m looking to collaborate on KYH
-- 📫 How to reach me wogurdl2570@gmail.com
+- 📫 How to reach me devtaego@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
